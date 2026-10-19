@@ -217,4 +217,4 @@ Five Nights at Freddy’s World is available as a complete free version with all
 Download Five Nights at Freddy’s World today and embark on a delightful adventure with your favorite animatronics!
 
 ---
-**Last updated:** 2026-10-19 12:24:08 UTC
+**Last updated:** 2026-10-19 19:05:01 UTC
